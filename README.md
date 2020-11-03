@@ -1,1 +1,1 @@
-Notre projet SNOFLAK
+Notre lit projet SNOFLAK
